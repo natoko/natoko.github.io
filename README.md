@@ -1,1 +1,0 @@
-# natoko.github.io
